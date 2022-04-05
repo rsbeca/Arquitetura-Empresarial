@@ -6,3 +6,6 @@
 
 *Entrega 2*
 - Parte escrita: https://docs.google.com/document/d/1Fk4dR1_6AQfaXj6hMwfB-rwVMjCmYbAkFvKnLTmpWtg/edit?hl=pt_BR
+
+*Entrega 3*
+- Parte escrita: https://docs.google.com/document/d/1n2MDwdn2wUV0OApfFAsrxbdqf34KGfwt2TOY0mTEll8/edit?usp=sharing
