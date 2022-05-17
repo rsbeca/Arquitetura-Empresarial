@@ -12,3 +12,9 @@
 
 *Entrega 4*
 - Parte escrita: https://docs.google.com/document/d/1n2MDwdn2wUV0OApfFAsrxbdqf34KGfwt2TOY0mTEll8/edit?usp=sharing
+
+*Entrega 5*
+- Parte escrita: https://docs.google.com/document/d/1n2MDwdn2wUV0OApfFAsrxbdqf34KGfwt2TOY0mTEll8/edit?usp=sharing
+
+*Entrega 6*
+- Parte escrita: https://docs.google.com/document/d/1n2MDwdn2wUV0OApfFAsrxbdqf34KGfwt2TOY0mTEll8/edit?usp=sharing
